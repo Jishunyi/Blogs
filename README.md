@@ -1,0 +1,2 @@
+# Blogs
+https://shunyi.fun/
